@@ -1,1 +1,1 @@
-This is is only for commited fans of Kung Fu Panda.
+I Love Kung Fu and I hate Stairs. 
